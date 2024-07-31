@@ -1,2 +1,6 @@
-# Xind-Cracked
-lame ass skid chatgpt skid tool
+# Xind Cracked
+* EZ CRACKED BY MOLOTOV!
+
+  Credit:
+    - KimGunwoo : making this shit
+    - Molotov : cracked this shit
