@@ -1,6 +1,4 @@
 # Xind Cracked
-* EZ CRACKED BY MOLOTOV!
-
-  Credit:
-    - KimGunwoo : making this shit
-    - Molotov : cracked this shit
+* Made by [KimGunwoo](https://github.com/kimGunwooYoutube)
+* Crack by [Molotov](https://discord.gg/tKn9VV7M6H)
+* **lame ass chatgpt skid**
